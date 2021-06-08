@@ -1,6 +1,6 @@
 - Hi, I’m @Rwvwndish
 - I’m interested in this coding system (I think)
-- I’m currently learning Coding (self=taught maybe)
+- I’m currently learning Coding (self-taught maybe)
 - I’m looking to collaborate on myself 
 - How to reach me just search @Rwvwndish in twitter and you can find me there
 
